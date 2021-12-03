@@ -35,7 +35,7 @@ Learn Healthy Habits. You’ll manage stressful times better if you: Exercise re
 Believe in Yourself. Take pride in your abilities and what you’ve done. Recognize your personal strengths.
 Keep Laughing. Hold on to your sense of humor even when times are tough. Laughter relieves stress and helps you keep things in check.
 Be Optimistic.A positive, hopeful outlook will make you much more resilient. Remember that many of the problems you’ll face in life are temporary, and that you have overcome setbacks in the past.
-POST NAVIGATION
+
 
 		
 
